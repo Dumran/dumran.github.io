@@ -21,4 +21,4 @@ Since no personal data is collected, there is no risk of data storage or misuse 
 We may update this privacy policy in the future. Any changes will be reflected on this page.
 
 **Contact**
-If you have any questions, you can contact us at: [your-email@example.com](mailto:your-email@example.com)
+If you have any questions, you can contact us at: [dumranq@gmail.com](mailto:dumranq@gmail.com)
